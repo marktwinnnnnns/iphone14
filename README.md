@@ -95,32 +95,16 @@ https://luknij.video/movie/black-adam-caly-film-hdrip/
 https://luknij.video/black-adam-hd-odtwarzacz/	
 https://seansowo.pl/	
 https://seansowo.pl/venom-2-carnage-caly-film-hd/	
-batman za darmo cały film	
 https://luknij.video/movie/film-halloween-final-2022-caly-film-napisy-pl-lektor/	
 https://luknij.video/halloween-final-odtwarzacz/	
-randki za darmo w Polsce	
+	
 https://luknij.video/movie/kraina-lodu-caly-film-lektor-pl-napisy-pl/	
 https://luknij.video/movie/rick-i-morty-sezon-6-odcinek-1/	
-portale randkowe w Polsce 2022	
-portale randkowe w Polsce 2022	
 https://buziaczek.info/randkowanie-za-darmo-najlepsze-sposoby/	
 https://randkionline.info/date-zone-randki-opis-recenzja-alternatywy/	
 https://randkionline.info/najpopularniejsze-portale-randkowe-w-polsce-i-na-swiecie/	
 https://randkionline.info/portal-dla-samotnych-bez-rejestracji/	
 	
-	
-	
-	
-	
-	
-	
-	
-	
-	
-	
-	
-	
-nutaku gold coin 2023	
 https://arsgp.weebly.com/	
 https://wtnacademy2020.weebly.com	
 https://wtnacademy2020.weebly.com/register.html	
